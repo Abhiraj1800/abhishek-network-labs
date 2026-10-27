@@ -88,7 +88,7 @@ I am interested in:
 
 - **GitHub:** https://github.com/Abhiraj1800
 - **LinkedIn:** https://www.linkedin.com/in/abhishek850
-- **YouTube:** Abhi Networking
+- **YouTube:** https://www.youtube.com/@AbhiNetworking  Abhi Networking
 
 For professional opportunities, please connect with me through LinkedIn.
 
